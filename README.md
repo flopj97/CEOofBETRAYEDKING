@@ -31,7 +31,7 @@ BETRAYEDKING (ultimate favourite), ALL x 1x1x1x1, Demon King John Doe x Betrayed
  * JohnJane yapper (im sorry i love jane but i dislike the forsaken jane doe for some specific reasson, if u a JohnJane lover i won't hate on you c; and im happy to match JohnJane with you, i just feel awkward talking about it, corrupteddept, 1xshed (i do like 1xtelamon))
  * proship
  * if u disrespect me and my friend i wouldn't be happy.
- * stealing or copying my skin, include the color shade.. i am very discomfort by that, pls ask for permission first.
+ * stealing or copying my skin or my friend, including the color shade.. i am very discomfort by that, pls ask for permission first.
  * sensitive person (im very straightforward and some of my joke/curse might be inappropriate for u.
 
  **ME**
