@@ -15,14 +15,22 @@ fandom: Forsaken, Die of Death, Nullscape, Regretevator, IHasAFaceLULZ, SeilDire
 
 Favourite: 1x1x1x1 (all fandom), Pursuer, cadance|voidbreaker, Null, JX1DX1, Sean, BoBoiboy Solar, Kashimo Hajime (Jujutsu Kaisen), Xiao Yi Bai (萧一白) (series name i can't translate), Li Huo Wang (李火旺) (series name: Dao of Bizzare mortal)...
 
+
 I FUCKING LOVE BETRAYEDKING: 
 ![one of my betrayedking art](https://github.com/flopj97/CEOofBETRAYEDKING/blob/main/btrkdk.png?raw=true)
+
 my art btw
+
+
 Demon King John Doe x Betrayed 1x1x1x1 (In my AU i hc DKJD and John Doe are seperate person)
 
 ship i like: BETRAYEDKING betrayedking (my ultimate favourite) and uhh ALL x 1x1x1x1
+
+
 mi art:
 ![one of my betrayedking art](https://github.com/flopj97/CEOofBETRAYEDKING/blob/main/ttt.png?raw=true)
+
+
 DNI:
  * JohnJane yapper (im sorry i love jane but i dislike the forsaken jane doe for some specific reasson, if u a JohnJane lover i won't hate on you c; and im happy to match JohnJane with you, i just feel awkward talking about it, corrupteddept, 1xshed (i do like 1xtelamon))
  * proship
