@@ -35,10 +35,7 @@ DNI:
   * i often busy on studying
   * i love betrayedking a little amount (get freak out if i see a demon king cosplay)
 
-<p align="center">
-  <img src="https://media.discordapp.net/attachments/1428353261882179715/1495048699863109754/Khong_Co_Tieu_e181_20260225004911.png" width="300"/>
-</p> 
-
+![one of my betrayedking art](https://github.com/flopj97/CEOofBETRAYEDKING/blob/main/btrkdk.png?raw=true)
 
 
 
