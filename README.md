@@ -35,6 +35,7 @@ DNI:
   * i often busy on studying
   * i love betrayedking a little amount (get freak out if i see a demon king cosplay)
 
+ one of my betrayedking art:
 ![one of my betrayedking art](https://github.com/flopj97/CEOofBETRAYEDKING/blob/main/btrkdk.png?raw=true)
 
 
