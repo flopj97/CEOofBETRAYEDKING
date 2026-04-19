@@ -1,5 +1,8 @@
 **Hello, i go by Fuji (Flopj97 as my user almost every platforms)**
 
+*lot of art content by me heh*
+![yay](https://github.com/flopj97/CEOofBETRAYEDKING/blob/main/1x.png?raw=true)
+
 *Game: Roblox, pony town only* 
 *roblox: @Flopj97* (old account was hacked in febuary, old acc user: Xx_achacha)
 
