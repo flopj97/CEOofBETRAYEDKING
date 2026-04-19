@@ -64,8 +64,9 @@ BETRAYEDKING (ultimate favourite), ALL x 1x1x1x1, Demon King John Doe x Betrayed
   * sometime i get upset so pls only close friend interact with me.
   * u can always vent on me
   * very freaky and poor English (i have bad grammer and mispelling a lot).
-  *i love all of my friends, i accept all friend request in roblox.
- *i love talking about betrayedking, betrayedking my life. big kin on 1x1x1x1 in every universes.
+  * i love all of my friends, i accept all friend request in roblox.
+ * i love talking about betrayedking, betrayedking my life.
+ * big kin on 1x1x1x1 in every universes.
  * i often busy on studying
  * i love betrayedking a little amount (get freak out if i see a demon king cosplay)
 
