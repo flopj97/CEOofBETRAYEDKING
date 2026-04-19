@@ -14,6 +14,19 @@ Forsaken, Die of Death, Nullscape, Regretevator, IHasAFaceLULZ, SeilDirectory, B
 1x1x1x1 (all fandom), Pursuer, cadance|voidbreaker, Null, JX1DX1, Sean, BoBoiboy Solar, Kashimo Hajime (Jujutsu Kaisen), Xiao Yi Bai | 萧一白 (i dont remember the series name), Li Huo Wang | 李火旺 (Dao of Bizzare mortal)...
 
 
+**Li Huo Wang**: 
+![blup](https://github.com/flopj97/CEOofBETRAYEDKING/blob/main/lihuowang.png?raw=true)
+
+
+**JX1DX1**: 
+![no](https://github.com/flopj97/CEOofBETRAYEDKING/blob/main/jx1.png?raw=true)
+
+
+**SEAN**: 
+![seab](https://github.com/flopj97/CEOofBETRAYEDKING/blob/main/sean.png?raw=true)
+
+
+
 **BETRAYEDKING** 
 ![one of my betrayedking art](https://github.com/flopj97/CEOofBETRAYEDKING/blob/main/btrkdk.png?raw=true)
 
@@ -21,6 +34,12 @@ Forsaken, Die of Death, Nullscape, Regretevator, IHasAFaceLULZ, SeilDirectory, B
 
 **SHIP:** 
 BETRAYEDKING (ultimate favourite), ALL x 1x1x1x1, Demon King John Doe x Betrayed 1x1x1x1 (I hc DKJD and John Doe are seperate person)
+
+
+
+**AU BETRAYEDKING**
+![blop](https://github.com/flopj97/CEOofBETRAYEDKING/blob/main/au.png?raw=true)
+
 
 **another betrayedking**
 ![one of my betrayedking art](https://github.com/flopj97/CEOofBETRAYEDKING/blob/main/ttt.png?raw=true)
