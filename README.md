@@ -66,4 +66,6 @@ BETRAYEDKING (ultimate favourite), ALL x 1x1x1x1, Demon King John Doe x Betrayed
   * i often busy on studying
   * i love betrayedking a little amount (get freak out if i see a demon king cosplay)
 
+**MY GF AND ME, I LOVE MY GF SO MUCH**:
+![fujiamy](https://github.com/flopj97/CEOofBETRAYEDKING/blob/main/fujiamy.png?raw=true)
 
