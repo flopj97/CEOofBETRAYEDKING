@@ -38,6 +38,6 @@ DNI:
  one of my betrayedking art:
 ![one of my betrayedking art](https://github.com/flopj97/CEOofBETRAYEDKING/blob/main/btrkdk.png?raw=true)
 
-
-
+the other art:
+![one of my betrayedking art](https://github.com/flopj97/CEOofBETRAYEDKING/blob/main/ttt.png?raw=true)
 
